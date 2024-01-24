@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Abhishekrajlakhera
+- 👀 I’m interested in software engineer 
+- 🌱 I’m currently learning DSA, java 
+- 💞️ I’m looking to collaborate on Google, Microsoft 
+- 📫 How to reach me : abhishekrajlakhera3579@gmail.com
+- 😄 Pronouns: Abhishek 
+- ⚡ Fun fact: zero experience
+- lin.in :- https://www.linkedin.com/in/abhishek-raj-lakhera-886b28281
